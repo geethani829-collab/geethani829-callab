@@ -1,2 +1,2 @@
-# geethani829-callab
+# geethani829-collab
 Welcome to my GitHub profile!
